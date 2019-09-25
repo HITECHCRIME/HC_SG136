@@ -8,6 +8,9 @@
 
 Description.
 
+[FREE] HARD  XXXTENTACION x ZOTIYAC x SKI MASK TRAP TYPE BEAT  SCYTHE  [PROD. MYSTXRY]
+
+Inspired by Bones - MustBeARealDragWakingUpAndBeingYou
 
 **Title:**  / **Featuring:** 
 
@@ -16,7 +19,15 @@ Description.
 ## Lyrics
 
 ```
+i mean
+de lo
+fa lu
 
+fe go
+u it
+i u
+
+-quick rapp-
 
 ```
 
