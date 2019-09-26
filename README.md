@@ -24,10 +24,12 @@ hitech crime active
 i meant (i meant)
 de lo (to cost)
 fa lu (nah bru) (for-tune)
+fuck this stress! (overlay over i u) lower tone
 
 fe go (theo
 u it (innuit)
 i u (die through)
+fuck this stress! (overlay over i u) lower tone
 
 i mean
 de lo
