@@ -21,13 +21,13 @@ Inspired by Bones - MustBeARealDragWakingUpAndBeingYou
 ```
 hitech crime active
 
-i meant
-de lo
-fa lu
+i meant (i meant)
+de lo (to cost)
+fa lu (nah bru) (for-tune)
 
-fe go
-u it
-i u
+fe go (theo
+u it (innuit)
+i u (die through)
 
 i mean
 de lo
