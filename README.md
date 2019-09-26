@@ -6,6 +6,8 @@
 
 ## Project Data
 
+Esoteric lang song?
+
 [FREE] HARD  XXXTENTACION x ZOTIYAC x SKI MASK TRAP TYPE BEAT  SCYTHE  [PROD. MYSTXRY]
 
 Inspired by Bones - MustBeARealDragWakingUpAndBeingYou
