@@ -29,7 +29,7 @@ fe go
 u it
 i u
 
-i meant
+i mean
 de lo
 fa lu
 
@@ -38,6 +38,8 @@ u it
 i u
 
 -quick rapp-
+
+ratatatatatataa
 
 ```
 
