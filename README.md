@@ -1,6 +1,6 @@
 [cover] ![](57175019_31947ARTIST_4918741616_8502199518755923887_n.jpg)
 
-# MOTHNODE_ Fuego (change that)
+# MOTHNODE_ Are You
 
 **Listen now:** 
 
@@ -12,7 +12,7 @@ Description.
 
 Inspired by Bones - MustBeARealDragWakingUpAndBeingYou
 
-**Title:**  / **Featuring:** 
+**Title:** Are You / **Featuring:** MOTHNODE
 
 **Production:**  / **Lyrics:** 
 
