@@ -6,15 +6,13 @@
 
 ## Project Data
 
-Description.
-
 [FREE] HARD  XXXTENTACION x ZOTIYAC x SKI MASK TRAP TYPE BEAT  SCYTHE  [PROD. MYSTXRY]
 
 Inspired by Bones - MustBeARealDragWakingUpAndBeingYou
 
 **Title:** Are You / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** 
+**Production:** MYSTXRY / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
