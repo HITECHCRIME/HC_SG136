@@ -19,9 +19,17 @@ Inspired by Bones - MustBeARealDragWakingUpAndBeingYou
 ## Lyrics
 
 ```
-hitech crime
+hitech crime active
 
-i mean
+i meant
+de lo
+fa lu
+
+fe go
+u it
+i u
+
+i meant
 de lo
 fa lu
 
