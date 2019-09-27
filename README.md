@@ -10,8 +10,6 @@ Esoteric lang song? Chant?
 
 [FREE] HARD  XXXTENTACION x ZOTIYAC x SKI MASK TRAP TYPE BEAT  SCYTHE  [PROD. MYSTXRY]
 
-Inspired by Bones - MustBeARealDragWakingUpAndBeingYou
-
 **Title:** Are You / **Featuring:** MOTHNODE
 
 **Production:** MYSTXRY / **Lyrics:** MOTHNODE
@@ -19,7 +17,6 @@ Inspired by Bones - MustBeARealDragWakingUpAndBeingYou
 ## Lyrics
 
 ```
-
 ayayaya
 ayayayauuuu (mantra vibe, droning, hearable delicate autotune)
 
