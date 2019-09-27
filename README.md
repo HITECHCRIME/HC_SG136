@@ -71,40 +71,42 @@ ai u (are you)
 -quick rap-
 -quick rap-
 
-skip and 
-ratatatatatataa fucking
-mission -------- order PECKIN'
-(order)  chicekn ----------- reign now
-while you're making,  (put your fucking) hands on the razor
+SKIP AND 
+ratatatatatataa FUCKING(?)
+MISSION -------- ORDER PECKIN'
+(order)  chicken(?)haha ----------- REIGN NOW
+while you're making,  (put your fucking) HANDS ON THE RAZOR
 
 yeeee
 
 how about we
-get it all around the freethinkin'
-got all my cons (crossed yet) still so broke still SYNCING / got all my cons (yet) still so broke (mellow fellow) still SYNCING 
-kept thinking of the mellow fellow as
+get it all around the FREETHINKIN'
+got all my CONS (crossed yet) still so broke yet STILL SYNCING / got all my cons (yet) still so broke (mellow fellow) still SYNCING 
+KEPT THINKING of the mellow fellow as
 x   x
 myself still
-unconvincing - ya
+UNCONVINCING - ya
 
-i don't need no (soul's) sync -
-i don't need no yet still missing ya
+I DON'T NEED NO SOUL (soul's) sync -
+I DON'T NEED NONE YET STILL MISSIN' YA
+
+x
+
+THEY DON'T FOLLOW
+HOLLA 
+YOU'RE IT ARE YOU
+
+I MEAN
+THEY DON'T FOLLOW
+THEY GO VIEW IT
+ARE YOU
 
 they don't follow
-hola 
-you it are you
-
-i mean
-they don't follow
-they go view it
-are you
-
-the they don't follow
 they go view  it
 are you? i mean they don't follow
 
-they do view it
-ain't it shallow
+THEY DO VIEW IT
+AIN'T IT SHALLOW
 
 de lo
 fa lu
