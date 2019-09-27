@@ -45,7 +45,7 @@ yaaa
 
 
 x
-
+SHEEP GOING TO SLAUGHTER OF MINDS
 
 x
 
@@ -82,23 +82,21 @@ kept thinking of the mellow fellow as
 myself still
 unconvincing - ya
 
-i don't need no (soul's) sync
-i don't need noyet still missing ya
+i don't need no (soul's) sync -
+i don't need no yet still missing ya
 
 they don't follow
-hola you it and you
+hola 
+you it and you
 
-you and
-psy cho(/u)
-
-mellow falu
-
+i mean
 they don't follow
 they go view it
 are you
-the they don't  follow
+
+the they don't follow
 they go view  it
-i mean they don't follow
+i mean are you? they don't follow
 they do view it
 
 ain't it shallow
@@ -116,7 +114,10 @@ they don't follow
 i mean de lo
 
 
+you and
+psy cho(/u)
 
+mellow falu
 
 ```
 
