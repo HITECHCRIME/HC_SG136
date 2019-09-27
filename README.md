@@ -43,6 +43,12 @@ fuck this stress!   (overlay over i u) lower tone
 
 yaaa
 
+
+x
+
+
+x
+
 i mean
 de lo
 fa lu
@@ -61,9 +67,9 @@ ai u (are you)
 -quick rap-
 
 skip and 
-ratatatatatataa  fucking
-mission -------- pecking
-order ----------- reign now
+ratatatatatataa fucking
+mission -------- order PECKIN'
+(order) ----------- reign now
 while you're making,  hands on the razor
 
 yeeee
@@ -87,7 +93,7 @@ de lo
 fa lu
 
 fe go
-u it (use it)
+u it (use it - who are
 you an i
 
 i mean de lo
