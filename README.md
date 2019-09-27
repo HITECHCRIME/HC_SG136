@@ -37,13 +37,17 @@ me lo
 fe lu
 fue go                (theo
 u and               (innuit)
-i u                 (die through)
+i u    (die through)
+
 fuck this stress!   (overlay over i u) lower tone
 
+yaaa
+
+i mean
 de lo
 fa lu
 
-fe go
+(FALU) fe go
 u it
 you an i
 
