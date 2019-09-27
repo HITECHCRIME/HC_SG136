@@ -25,9 +25,8 @@ i meant (i meant)
 de lo (to cost)
 fa lu (nah bru) (for-tune)
 fuck this stress! (overlay over i u) lower tone
-
 fe go (theo
-u it (innuit)
+u and (innuit)
 i u (die through)
 fuck this stress! (overlay over i u) lower tone
 
@@ -43,18 +42,18 @@ i mean fuego
 -quick rapp-
 
 skip and 
-ratatatatatataa
------------ pecking
+ratatatatatataa  fucking
+mission -------- pecking
 order -----------
 hands on the  razor
 
 yeeee
 
 how about we
-get it all around
-all my freethink
-cons syncing still
-convincing ya
+get it all around the freethink
+all my cons yet still so broke still syncing 
+kept thinking of myself still
+unconvincing - ya
 
 i don't need no soul's syncing
 but still missing ya
