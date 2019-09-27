@@ -22,7 +22,7 @@ Inspired by Bones - MustBeARealDragWakingUpAndBeingYou
 ayayaya
 ayayayauuuu
 
-hitech crime active
+"hitech crime active"
 
 i mean             (i meant)  / money?
 de lo               (to cost)
@@ -60,6 +60,7 @@ you an i
 i mean fuego
 
 you and
+
 ai u (are you)
 
 -quick rap-
@@ -81,10 +82,11 @@ kept thinking of the mellow fellow as
 myself still
 unconvincing - ya
 
-i don't need no (soul's) syncing
-yet still missing ya
+i don't need no (soul's) sync
+i don't need noyet still missing ya
 
 they don't follow
+hola you it and you
 
 you and
 psy cho(/u)
@@ -93,6 +95,12 @@ mellow falu
 
 they don't follow
 they go view it
+are you
+the they don't  follow
+they go view  it
+i mean they don't follow
+they do view it
+
 ain't it shallow
 
 de lo
@@ -102,6 +110,7 @@ fe go
 u it (use it - who are
 you an i
 
+i mean
 they don't follow
 
 i mean de lo
