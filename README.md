@@ -6,7 +6,7 @@
 
 ## Project Data
 
-Esoteric lang song?
+Esoteric lang song? Chant?
 
 [FREE] HARD  XXXTENTACION x ZOTIYAC x SKI MASK TRAP TYPE BEAT  SCYTHE  [PROD. MYSTXRY]
 
