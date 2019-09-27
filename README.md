@@ -24,7 +24,7 @@ ayayayauuuu
 
 hitech crime active
 
-i mean             (i meant)
+i mean             (i meant)  / money?
 de lo               (to cost)
 fa lu               (nah bru) (for-tune)
 fe go               (theo
