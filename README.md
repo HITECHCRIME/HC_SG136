@@ -24,7 +24,7 @@ ayayayauuuu
 
 hitech crime active
 
-i meant             (i meant)
+i mean             (i meant)
 de lo               (to cost)
 fa lu               (nah bru) (for-tune)
 fuck this stress!   (overlay over i u) lower tone
@@ -42,6 +42,9 @@ u it
 you an i
 
 i mean fuego
+
+you and
+ai u
 
 -quick rapp-
 
@@ -61,7 +64,7 @@ myself still
 unconvincing - ya
 
 i don't need no soul's syncing
-but still missing ya
+ywt still missing ya
 
 you and
 psy cho(/u)
