@@ -31,7 +31,6 @@ u it (innuit)
 i u (die through)
 fuck this stress! (overlay over i u) lower tone
 
-i mean
 de lo
 fa lu
 
@@ -39,20 +38,30 @@ fe go
 u it
 i u
 
+i mean fuego
+
 -quick rapp-
 
+skip and 
 ratatatatatataa
+hands on the  razor
 
-
-
-you and
-psy cho(/u)
+yeeee
 
 how about we
 get it all around
 all my freethink
 cons syncing still
 convincing ya
+
+i don't need no soul's syncing
+but still missing ya
+
+you and
+psy cho(/u)
+
+mellow falu
+
 
 ```
 
