@@ -36,7 +36,7 @@ fa lu
 
 fe go
 u it
-you an i u
+you an i
 
 i mean fuego
 
@@ -45,15 +45,16 @@ i mean fuego
 skip and 
 ratatatatatataa  fucking
 mission -------- pecking
-order -----------
-hands on the  razor
+order ----------- reign now
+hands on the razor
 
 yeeee
 
 how about we
 get it all around the freethink
 all my cons (yet) still so broke (mellow fellow) still SYNCING 
-kept thinking of myself still
+kept thinking of the mellow fellow as
+myself still
 unconvincing - ya
 
 i don't need no soul's syncing
