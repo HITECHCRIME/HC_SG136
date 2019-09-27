@@ -75,7 +75,7 @@ while you're making,  hands on the razor
 yeeee
 
 how about we
-get it all around the freethink
+get it all around the freethinkin'
 all my cons (yet) still so broke (mellow fellow) still SYNCING 
 kept thinking of the mellow fellow as
 myself still
@@ -84,10 +84,16 @@ unconvincing - ya
 i don't need no (soul's) syncing
 yet still missing ya
 
+they don't follow
+
 you and
 psy cho(/u)
 
 mellow falu
+
+they don't follow
+they go view it
+ain't it shallow
 
 de lo
 fa lu
@@ -96,7 +102,11 @@ fe go
 u it (use it - who are
 you an i
 
+they don't follow
+
 i mean de lo
+
+
 
 
 ```
