@@ -70,7 +70,7 @@ skip and
 ratatatatatataa fucking
 mission -------- order PECKIN'
 (order) ----------- reign now
-while you're making,  hands on the razor
+while you're making,  (put your fucking) hands on the razor
 
 yeeee
 
