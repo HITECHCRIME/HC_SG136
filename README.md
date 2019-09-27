@@ -19,8 +19,9 @@ Inspired by Bones - MustBeARealDragWakingUpAndBeingYou
 ## Lyrics
 
 ```
+
 ayayaya
-ayayayauuuu
+ayayayauuuu (mantra vibe, droning, hearable delicate autotune)
 
 "hitech crime active"
 
