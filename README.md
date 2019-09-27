@@ -19,6 +19,9 @@ Inspired by Bones - MustBeARealDragWakingUpAndBeingYou
 ## Lyrics
 
 ```
+ayayaya
+ayayayauuuu
+
 hitech crime active
 
 i meant             (i meant)
@@ -46,7 +49,7 @@ skip and
 ratatatatatataa  fucking
 mission -------- pecking
 order ----------- reign now
-hands on the razor
+while you're making,  hands on the razor
 
 yeeee
 
@@ -64,6 +67,15 @@ you and
 psy cho(/u)
 
 mellow falu
+
+de lo
+fa lu
+
+fe go
+u it
+you an i
+
+i mean de lo
 
 
 ```
