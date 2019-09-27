@@ -53,8 +53,12 @@ i mean
 de lo
 fa lu
 
-(FALU) fe go
+(FALU) 
+
+fe go
+
 u it
+
 you an i
 
 i mean fuego
@@ -70,15 +74,16 @@ ai u (are you)
 skip and 
 ratatatatatataa fucking
 mission -------- order PECKIN'
-(order) ----------- reign now
+(order)  chicekn ----------- reign now
 while you're making,  (put your fucking) hands on the razor
 
 yeeee
 
 how about we
 get it all around the freethinkin'
-all my cons (yet) still so broke (mellow fellow) still SYNCING 
+got all my cons (crossed yet) still so broke still SYNCING / got all my cons (yet) still so broke (mellow fellow) still SYNCING 
 kept thinking of the mellow fellow as
+x   x
 myself still
 unconvincing - ya
 
@@ -87,7 +92,7 @@ i don't need no yet still missing ya
 
 they don't follow
 hola 
-you it and you
+you it are you
 
 i mean
 they don't follow
@@ -96,9 +101,9 @@ are you
 
 the they don't follow
 they go view  it
-i mean are you? they don't follow
-they do view it
+are you? i mean they don't follow
 
+they do view it
 ain't it shallow
 
 de lo
