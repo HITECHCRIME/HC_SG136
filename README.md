@@ -36,7 +36,7 @@ fa lu
 
 fe go
 u it
-i u
+you an i u
 
 i mean fuego
 
@@ -44,6 +44,8 @@ i mean fuego
 
 skip and 
 ratatatatatataa
+----------- pecking
+order -----------
 hands on the  razor
 
 yeeee
