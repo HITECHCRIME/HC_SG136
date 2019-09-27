@@ -56,7 +56,9 @@ i mean fuego
 you and
 ai u
 
--quick rapp-
+-quick rap-
+-quick rap-
+-quick rap-
 
 skip and 
 ratatatatatataa  fucking
@@ -73,8 +75,8 @@ kept thinking of the mellow fellow as
 myself still
 unconvincing - ya
 
-i don't need no soul's syncing
-ywt still missing ya
+i don't need no (soul's) syncing
+yet still missing ya
 
 you and
 psy cho(/u)
