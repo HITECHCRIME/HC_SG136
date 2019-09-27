@@ -21,14 +21,15 @@ Inspired by Bones - MustBeARealDragWakingUpAndBeingYou
 ```
 hitech crime active
 
-i meant (i meant)
-de lo (to cost)
-fa lu (nah bru) (for-tune)
-fuck this stress! (overlay over i u) lower tone
-fe go (theo
-u and (innuit)
-i u (die through)
-fuck this stress! (overlay over i u) lower tone
+i meant             (i meant)
+de lo               (to cost)
+fa lu               (nah bru) (for-tune)
+fuck this stress!   (overlay over i u) lower tone
+
+fe go               (theo
+u and               (innuit)
+i u                 (die through)
+fuck this stress!   (overlay over i u) lower tone
 
 de lo
 fa lu
@@ -51,7 +52,7 @@ yeeee
 
 how about we
 get it all around the freethink
-all my cons yet still so broke still syncing 
+all my cons yet still so broke still SYNCING 
 kept thinking of myself still
 unconvincing - ya
 
