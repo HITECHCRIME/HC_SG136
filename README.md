@@ -29,7 +29,7 @@ de lo               (to cost)
 fa lu               (nah bru) (for-tune)
 fe go               (theo
 u and               (innuit)
-i u                 (die through)
+i u (are you)       (die through)
 
 fuck this stress!   (overlay over i u) lower tone
 
@@ -37,7 +37,7 @@ me lo
 fe lu
 fue go                (theo
 u and               (innuit)
-i u    (die through)
+i u                 (are you)  (die through)
 
 fuck this stress!   (overlay over i u) lower tone
 
@@ -54,7 +54,7 @@ you an i
 i mean fuego
 
 you and
-ai u
+ai u (are you)
 
 -quick rap-
 -quick rap-
@@ -87,7 +87,7 @@ de lo
 fa lu
 
 fe go
-u it
+u it (use it)
 you an i
 
 i mean de lo
