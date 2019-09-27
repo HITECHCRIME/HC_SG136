@@ -52,7 +52,7 @@ yeeee
 
 how about we
 get it all around the freethink
-all my cons yet still so broke still SYNCING 
+all my cons (yet) still so broke (mellow fellow) still SYNCING 
 kept thinking of myself still
 unconvincing - ya
 
