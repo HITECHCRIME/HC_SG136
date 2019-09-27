@@ -43,6 +43,17 @@ i u
 
 ratatatatatataa
 
+
+
+you and
+psy cho(/u)
+
+how about we
+get it all around
+all my freethink
+cons syncing still
+convincing ya
+
 ```
 
 ## Lyrics Testing Ground
