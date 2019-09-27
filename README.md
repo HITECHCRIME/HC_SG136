@@ -81,7 +81,7 @@ yeeee
 
 how about we
 get it all around the FREETHINKIN'
-got all my CONS (crossed yet) still so broke yet STILL SYNCING / got all my cons (yet) still so broke (mellow fellow) still SYNCING 
+got all my CONS (crossed yet/out) still so broke yet STILL SYNCING / got all my cons (yet) still so broke (mellow fellow) still SYNCING 
 KEPT THINKING of the mellow fellow as
 x   x
 myself still
